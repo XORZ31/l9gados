@@ -1,0 +1,2 @@
+# l9gados
+KÜRTSİTESİSİKEN DOS TOOLU
