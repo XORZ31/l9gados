@@ -1,19 +1,9 @@
-# l9gados
-KÜRTSİTESİSİKEN DOS TOOLU
+L9GADOS - Kullan
 
-LA ŞÖYLE DİYEYİM BEN SİZE 
-https://prnt.sc/s-gaEs3v-psm  ÖNCESİ
+Beyler kullanmadan önce vpn açın sizlere kaynak kod ve exe halinde attım umarım beğenirsiniz  işinizi görür
 
-https://prnt.sc/gibVIkUgELzx SONRASI 
+vpn aç dememin sebebi bu ddos değildir yani farklı proxylerden veya ip lerden göndermez aksine  cihazınızdan gönderir yani şöyle görsellerle anlat derseniz 
 
-İNDİRMEK İÇİN ;
+https://prnt.sc/eNj9TCdmTPHV
 
-discord.gg/keles
-
-yedek link 
-
-https://discord.gg/xYWGc4pxMQ
-
-UNUTMAYIN BU TOOLA SADECE KÜRT SİTELERİ VURUN SİZE DEMEK İSTEDİĞİM BU;
-
-UNUTMAYIN İSTİSNALAR KAİDEYİ BOZMAZ KAİDEYİ YAZANDA BİZİZ!
+ Buradaki görsel gibidir iyi kullanımlar...
